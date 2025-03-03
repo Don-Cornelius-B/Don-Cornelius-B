@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning Python and C++
 - 📫 How to reach me : doncorneliuslivi@gmail.com or 6374760469
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I don't remember having one :D
+- ⚡ Fun fact: Future Focused with a Curious Mind :D
 
